@@ -1,5 +1,5 @@
 
-DELGADO, ALVAREZ, CUBINO & ASOCIADOS
+                                               DELGADO, ALVAREZ, CUBINO & ASOCIADOS
 
 Es una página web de una firma que presta servicios a empresas en las áreas de auditoría, consultoría financiera, impuestos y legal. 
 
